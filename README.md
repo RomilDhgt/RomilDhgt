@@ -1,6 +1,6 @@
 # 🌌Romil Dhagat🌌
 
-** Software Engineer || Electrical Engineer **
+**` Software Engineer || Electrical Engineer `**
 
 ## ✨ About Me
 
